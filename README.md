@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning ... AP Computer Science Principles
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... gabrielaharalambous77@gbstu.org
+- Social Media: @GabiHaralambous on Instagram @GabiHaralambous on Snapchat
 - 😄 Pronouns: ... she/her
 - ⚡ Fun fact: ... I love to play beach volley ball
 
